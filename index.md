@@ -15,3 +15,4 @@ special sensation in the heads of his readers.
 * knows many people
 * has a reliable work attitude
 * is always available for customer requests
+* has a VERY IMPRESSIVE VOICE
