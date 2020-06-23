@@ -20,5 +20,5 @@ special sensation in the heads of his readers.
 ## Quote
 
 > “I AM ALWAYS ALONE.
->  BUT JUST NOW I WANT TO BE ALONE BY MYSELF.”
->           -- DEATH, Reaper Man, Terry Pratchett
+> BUT JUST NOW I WANT TO BE ALONE BY MYSELF.”
+> -- DEATH, Reaper Man, Terry Pratchett
