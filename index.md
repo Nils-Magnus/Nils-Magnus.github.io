@@ -16,3 +16,9 @@ special sensation in the heads of his readers.
 * has a reliable work attitude
 * is always available for customer requests
 * has a VERY IMPRESSIVE VOICE
+
+## Quote
+
+> “I AM ALWAYS ALONE.
+>  BUT JUST NOW I WANT TO BE ALONE BY MYSELF.”
+>           -- DEATH, Reaper Man, Terry Pratchett
