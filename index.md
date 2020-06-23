@@ -27,4 +27,4 @@ special sensation in the heads of his readers.
 
 ![DEATH Portrait](death.jpg)
 
-<img src="https://images.app.goo.gl/g1Wxam7rvAzeveQG6"/>
+<img src="https://freesvg.org/img/DEATH_ON_BINKY.png"/>
