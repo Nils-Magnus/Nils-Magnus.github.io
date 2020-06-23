@@ -22,3 +22,9 @@ special sensation in the heads of his readers.
 > “I AM ALWAYS ALONE.
 > BUT JUST NOW I WANT TO BE ALONE BY MYSELF.”
 > -- DEATH, Reaper Man, Terry Pratchett
+
+## Image
+
+![DEATH Portrait](death.jpg)
+
+<img src="https://images.app.goo.gl/g1Wxam7rvAzeveQG6"/>
